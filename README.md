@@ -1,0 +1,2 @@
+# rick-usa
+educationnal
